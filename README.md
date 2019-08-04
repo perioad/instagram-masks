@@ -1,6 +1,6 @@
-# [My instagram account](https://www.instagram.com/perioad)
+# instagram-masks
 
-\**you can tap on every mask image and try it*
+\**you can tap on every mask image and immediately try it or go to my [INSTAGRAM ACCOUNT](https://www.instagram.com/perioad) and watch video preview of each mask*
 
 [<img width=200 src="https://i.imgur.com/ZTpus4b.png">](https://www.instagram.com/a/r/?effect_id=2365425077003210)
 [<img width=200 src="https://i.imgur.com/wLg0vzn.png">](https://www.instagram.com/a/r/?effect_id=2216627505130852) 
