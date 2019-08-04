@@ -1,6 +1,7 @@
 # instagram-masks
+\**you can tap on every mask image and try it*
 
-[<img width=200 src="https://i.imgur.com/wLg0vzn.png">](https://www.instagram.com/a/r/?effect_id=2216627505130852) 
+[<img width=200 src="https://i.imgur.com/wLg0vzn.png" target="_blank">](https://www.instagram.com/a/r/?effect_id=2216627505130852) 
 [<img width=200 src="https://i.imgur.com/8FnzkGZ.png">](https://www.instagram.com/a/r/?effect_id=621492165008312) 
 [<img width=200 src="https://i.imgur.com/FWB9dkS.png">](https://www.instagram.com/a/r/?effect_id=466583627474457) 
 [<img width=200 src="https://i.imgur.com/HAgUTel.png">](https://www.instagram.com/a/r/?effect_id=1558999594225097) 
