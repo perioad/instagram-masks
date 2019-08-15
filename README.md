@@ -2,6 +2,13 @@
 
 \**you can tap on every mask image and immediately try it or go to my [INSTAGRAM ACCOUNT](https://www.instagram.com/perioad) and watch video preview of each mask*
 
+[<img width=200 src="https://i.imgur.com/kb3Zsfa.png">](https://www.instagram.com/a/r/?effect_id=706477693099271)
+[<img width=200 src="https://i.imgur.com/SgOQRfw.png">](https://www.instagram.com/a/r/?effect_id=2397170577275726)
+[<img width=200 src="https://i.imgur.com/edjzqJ5.png">](https://www.instagram.com/a/r/?effect_id=641962772971477)
+[<img width=200 src="https://i.imgur.com/1IsPk7f.png">](https://www.instagram.com/a/r/?effect_id=2423005714651307)
+[<img width=200 src="https://i.imgur.com/M515hjH.png">](https://www.instagram.com/a/r/?effect_id=1360071027476757)
+[<img width=200 src="https://i.imgur.com/W0k3Osm.png">](https://www.instagram.com/a/r/?effect_id=649101085585752)
+[<img width=200 src="https://i.imgur.com/yMvr0gw.png">](https://www.instagram.com/a/r/?effect_id=482335349251527)
 [<img width=200 src="https://i.imgur.com/ZTpus4b.png">](https://www.instagram.com/a/r/?effect_id=2365425077003210)
 [<img width=200 src="https://i.imgur.com/wLg0vzn.png">](https://www.instagram.com/a/r/?effect_id=2216627505130852) 
 [<img width=200 src="https://i.imgur.com/8FnzkGZ.png">](https://www.instagram.com/a/r/?effect_id=621492165008312) 
