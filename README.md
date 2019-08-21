@@ -2,6 +2,8 @@
 
 \**you can tap on every mask image and immediately try it or go to my [INSTAGRAM ACCOUNT](https://www.instagram.com/perioad) and watch video preview of each mask*
 
+[<img width=200 src="https://i.imgur.com/1al2yq0.png">](https://www.instagram.com/a/r/?effect_id=486062515542134)
+[<img width=200 src="https://i.imgur.com/WmdryRD.png">](https://www.instagram.com/a/r/?effect_id=2514399198622259)
 [<img width=200 src="https://i.imgur.com/kb3Zsfa.png">](https://www.instagram.com/a/r/?effect_id=706477693099271)
 [<img width=200 src="https://i.imgur.com/SgOQRfw.png">](https://www.instagram.com/a/r/?effect_id=2397170577275726)
 [<img width=200 src="https://i.imgur.com/edjzqJ5.png">](https://www.instagram.com/a/r/?effect_id=641962772971477)
